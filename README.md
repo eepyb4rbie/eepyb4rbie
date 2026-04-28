@@ -1,1 +1,2 @@
-https://open.spotify.com/track/0aYf2v4kpJkx4KHl49gwY0?si=Rfk9SCJEQAWyHoJQscTqvg
+  ![Teks alternatif]<img width="736" height="736" alt="#jjk #halloween #jujutsu #kaisen #megumi #fushiguro" src="https://github.com/user-attachments/assets/35b39b10-5b12-471f-a262-7d30db8e71c1" />
+
